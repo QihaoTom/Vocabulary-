@@ -1,6 +1,7 @@
 # Vocabulary
 >So, this is the whole vocabulary for the next level words building of expressing yourself in English, to better perform yourself.
 
+## Peter Hessler: capturing essence of Chinese society
 * intonation 语音的抑扬
 * in the countryside 农村
 * **it's a challenge** **that's the next step** **it's a natural thing** ****
@@ -17,6 +18,7 @@
 * dynamics/pattern
 * How did you make that?
 * direct politics 关于政治的
+* so **you had to get at it** in an indirect way  触及get at it
 * 
 
 
