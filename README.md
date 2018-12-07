@@ -49,7 +49,9 @@
 * **pave** the dirt roads with the brick and cement铺路
 * Child labor
 * analog watch
-* 
+
+## 
+* graffiti 涂鸦
 
 
 
