@@ -52,6 +52,8 @@
 
 ## 
 * graffiti 涂鸦
+* stinks
+* 
 
 
 
