@@ -28,7 +28,13 @@
 * **moral conflict**
 * I become **sympathetic**, and that **come through** in my writing
 * it's somewhat **fluid** 漂泊
-* stay fresh, I am not getting to accustomed to something, it helps you to **remain observant**
+* stay fresh, I am not **getting to accustomed to** something, it helps you to **remain observant**
+* it hasn't been totally **chaotic**
+* **vicious battles**
+* **political supremacy** 政治斗争 **brutal**残暴 **radical change**彻底改变
+* to current extent
+* wary of 谨慎
+* it hasn't been pretty there 并不理想
 * 
 
 
