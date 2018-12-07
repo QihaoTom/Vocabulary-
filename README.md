@@ -37,7 +37,19 @@
 * it hasn't been pretty there 并不理想
 * people don't respond well, psychologically心理上
 
-## 
+## Joe Wong talk show
+* **cocky** bumper sticker 装逼的车贴
+* **negative connatation**贬义
+* **abduct** you 绑架 kidnap
+* weird out 吓坏
+* the Guantanamo Bay
+* pneumonia 肺炎
+* to **be a collision with** a cement truck 撞击
+* punish us with **vengeance 报仇**
+* **pave** the dirt roads with the brick and cement铺路
+* Child labor
+* analog watch
+* 
 
 
 
