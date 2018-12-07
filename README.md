@@ -35,8 +35,9 @@
 * to current extent
 * wary of 谨慎
 * it hasn't been pretty there 并不理想
-* people don't respond well, psychologically
-* 
+* people don't respond well, psychologically心理上
+
+## 
 
 
 
