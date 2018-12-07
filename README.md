@@ -41,7 +41,7 @@
 * **cocky** bumper sticker 装逼的车贴
 * **negative connatation**贬义
 * **abduct** you 绑架 kidnap
-* weird out 吓坏
+* **intimidating** weird out 吓坏
 * the Guantanamo Bay
 * pneumonia 肺炎
 * to **be a collision with** a cement truck 撞击
