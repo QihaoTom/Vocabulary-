@@ -53,7 +53,91 @@
 ## 
 * graffiti 涂鸦
 * stinks
-* 
+
+## Met | Delacroix
+courting danger
+rarity and beauty
+masculinity 
+The regal body
+adornments
+Rebuke to mortality
+Miraculously
+Intricate composition 
+Deities
+Beaded broad
+Replica
+Mummies
+The deceased
+Monumentality 
+Ascetic Palette
+onward
+austere
+Innate gift 
+Widely known
+magisterial forest
+Ongoing practice
+Own retreat
+Mounted on
+In the foreground
+Foliage
+Drapery
+Robes
+Varnished
+Darken
+Atmospheric effects
+Pastel of
+Counterpoint
+Resolved
+Aureole
+Indemnity
+Retrospective mounted
+Muses
+Philippe Rousseau
+Still life with bacon
+Everyday details
+Acquigny
+Garnished
+Sprig of bay leaves 
+In fashionable circle
+Debuted
+Stag / hare
+Modelled
+Undertaken
+Minor variations 
+Amass
+Forego nudes
+Charcoal and pastel
+Catalogue
+Evocatively 
+Ribald verses
+Experimentation 
+Hues
+The tub
+Polychromy
+Burnish
+Chartreuse 
+Seurat or Van Gogh
+Devotional painting 
+Patron saints 
+Watercolor 
+Underworld
+Demon
+Flaming pit
+Dissonant color
+Exaggerated Poes
+Sovereign brutality 
+Bolstered
+Unafraid
+The psyche
+Juxtaposition 
+Transoceanic trade
+Comestibles 
+Foothills
+Ethiopia
+Cobalt
+Peony scroll 
+Reminiscent
+Stalactites
 
 
 
