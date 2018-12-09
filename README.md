@@ -54,7 +54,7 @@
 * graffiti 涂鸦
 * stinks
 
-## Met | Delacroix
+## The Met | Delacroix
 courting danger
 rarity and beauty
 masculinity 
@@ -139,5 +139,5 @@ Peony scroll
 Reminiscent
 Stalactites
 
-
+## 
 
