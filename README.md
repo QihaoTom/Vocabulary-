@@ -12,7 +12,7 @@
 * stinks
 
 ## The Met | Delacroix
-courting danger
+* courting danger
 rarity and beauty
 masculinity 
 The regal body
@@ -97,10 +97,10 @@ Reminiscent
 Stalactites
 
 ## Jeray
-hole in the wall  苍蝇小馆
+* hole in the wall  苍蝇小馆
 
 ## MPA
-sourcing virtually market model reinvention configuration stage of a competition rather than contract out sailent condo garbage pick-up contaminated die out refine shades educationally lavish set aside equity nail downside alienating slack off
+* sourcing virtually market model reinvention configuration stage of a competition rather than contract out sailent condo garbage pick-up contaminated die out refine shades educationally lavish set aside equity nail downside alienating slack off
 
 
 
