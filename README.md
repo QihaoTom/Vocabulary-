@@ -100,7 +100,11 @@ Stalactites
 * hole in the wall  苍蝇小馆
 
 ## MPA
-* sourcing virtually market model reinvention configuration stage of a competition rather than contract out sailent condo garbage pick-up contaminated die out refine shades educationally lavish set aside equity nail downside alienating slack off
+* sourcing virtually market model reinvention configuration stage of a competition rather than contract out sailent condo garbage pick-up contaminated die out refine shades educationally lavish set aside **equity** **nail** downside alienating **slack off** **vouch** guerrilla blended **sit around** **on their toes** memorandum appreciably conservancy drug dealing fiscal hustle lagging vulnerable outer perimeter **premium** **civic capacity**
+
+## Youtube
+* fugitive officials panhandler **dismantle** Ecuadorian cult **vengeance** **malice** **cynic** **audacious** **contemplating** cubby staph parachute clear out episodic dignitary bolder uphold **imperatives** 
+
 
 
 
