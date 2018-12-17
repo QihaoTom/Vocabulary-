@@ -107,7 +107,9 @@ Stalactites
 * fugitive officials panhandler **dismantle** Ecuadorian cult **vengeance** **malice** **cynic** **audacious** **contemplating** cubby staph parachute clear out episodic dignitary bolder uphold **imperatives** **opaque** **repugnant**
 patrol mastermind estrangement **seamless** disentangle tort **contingency** favourable **stalement** hassle **nuance** 
 
-
+## The Human Side of Organizational Management
+* Throught history, **friction** between upper management and the **proletariat** has been common. This friction, if not mitigated through proper leadership, can adversely influence the productivity and efficiency of an organization. Organizational leaders are responsible not only for overseeing operations but also for delegating authority. According to Mary Parker Follett in "The Giving of Orders", authority must be exercised in an impersonal fashion if a leader is to avoid being perceived as overly authoritative or obsequious, as both extremes are counterproductive. The notion of depersonalized orders originated from scientific management. The depersonalization of orders coincided with the notion that workers were like machines. Follett sought a way to reduce management-worker conflict, recognizing that negative behavioral responses are more likely to emerge with superiors who embrace an overly authoritative leadership style. More specifically, Follett wrote:
+>What happens to a man, in a man, when an order is given in a disagreeable manner by foreman, head of department, his immediate superior at the store, bank or factory? The man addressed feels that his self-respect has been attacked, that one of his most inner sanctuaries is invaded. He loses his temper or becomes **sullen** or is on the defensive
 
 
 
