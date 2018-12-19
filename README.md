@@ -111,6 +111,43 @@ patrol mastermind estrangement **seamless** disentangle tort **contingency** fav
 * Throught history, **friction** between upper management and the **proletariat** has been common. This friction, if not mitigated through proper leadership, can adversely influence the productivity and efficiency of an organization. Organizational leaders are responsible not only for overseeing operations but also for delegating authority. According to Mary Parker Follett in "The Giving of Orders", authority must be exercised in an impersonal fashion if a leader is to avoid being perceived as overly authoritative or obsequious, as both extremes are counterproductive. The notion of depersonalized orders originated from scientific management. The depersonalization of orders coincided with the notion that workers were like machines. Follett sought a way to reduce management-worker conflict, recognizing that negative behavioral responses are more likely to emerge with superiors who embrace an overly authoritative leadership style. More specifically, Follett wrote:
 >What happens to a man, in a man, when an order is given in a disagreeable manner by foreman, head of department, his immediate superior at the store, bank or factory? The man addressed feels that his self-respect has been attacked, that one of his most inner sanctuaries is invaded. He loses his temper or becomes **sullen** or is on the defensive
 
+## The Problem With the UN Veto Power | NowThis World
+* though even the organization's **fiercest critics** admit it has done a lot of **good around**  
+* The UN has also been accused of being **complicit**共谋 in corruption, **tangled in** bureaucracy, and increasingly **reactive rather than proactive** in adreesing the world's
+* it's also been **accused of** failing to act to prevent **genocides**种族灭绝 in places including Rwanda, Bosnia, and Darfur, Sudan.
+* totally powerless / get to exercise real power / UN Security Council's Permanent 5 members (P5) / Right to Veto / break down what the right to veto is / how its implementation has failed humanitarian crises around the world / sat down with someone 
+* Do you see it that way?
+* it's remained largely unchanged since its first meeting / the six principal organs of the UN / save succeeding generations from **the scourage of war** / carries the power to reject a resolution / sanctions against / have to vote in favor 赞成/ **negate their own interest 违背** ／ palestinian 巴勒斯坦 ／ the Gaza border加沙 ／ in favor of **occupying the power** / myanmar 缅甸 ／ **mass atrocities are being commited** 
+* **this proposal has gained steam in recent years with major human rights groups calling on the Security Council to adopt th e measure**
+* as a check and balance on foreign intervention / what consitute / expand its membership 
+* the glaring lack of permanent representation / are aomong the popular contenders 竞争者 ／ are more open to expansion 
+* it would take a whole lot of support to modify the UN Charter, and to get all P5 members to agree at the same time to restrict their own power.
+* But despite of all its flaws, experts generally agree: the UN creates a vital space for diplomacy, mediation, and maintaining international peace.
+* indisutbly helped save lives / maintain global order / make the necessary reforms to balance power among its members and adequately address / falling through tracks /   
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
