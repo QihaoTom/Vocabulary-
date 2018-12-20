@@ -125,7 +125,8 @@ patrol mastermind estrangement **seamless** disentangle tort **contingency** fav
 * But despite of all its flaws, experts generally agree: the UN creates a vital space for diplomacy, mediation, and maintaining international peace.
 * indisutbly helped save lives / maintain global order / make the necessary reforms to balance power among its members and adequately address / falling through tracks /   
 
-
+## Peking Duke
+* marinate the duck 泡在酱汁中 ／ butcher the duck 宰鸭 ／ garnish the duck 配菜 ／ make it starchy / mouth glands 冒口水 ／ amp up with the spice / poach in a chicken broth 水煮 ／ feel a jolt 肚子叫 ／ scrounge up some people 找人打球 ／ lactose intorlerant 乳糖不耐受 ／ silent hint of milk / nibble away 咬一小口 ／ crumb 面包屑 ／ a tray of  chips 一盘饼干 ／ cologne 古龙水 ／ irresistible 不能抵挡
 
 
 
