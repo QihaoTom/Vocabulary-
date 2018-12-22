@@ -143,7 +143,7 @@ patrol mastermind estrangement **seamless** disentangle tort **contingency** fav
 * **it could that** you may thinking about earnings 
 * **maybe if you have more earnings, you can get an education certainly**
 * **One of the causal effect that has is it increase your earning potentials**
-* so if you have a high education **as opposed to** dropping out of high school, you expected to earn more.
+> so if you have a high education **as opposed to** dropping out of high school, you expected to earn more.
 * **If we are thinking about it in that way, eduation is the cause.** 
 * what you may have thought of things like, if you have more education, you will have more skills.
 * **your skills are rewarded** in the job market
@@ -156,7 +156,7 @@ patrol mastermind estrangement **seamless** disentangle tort **contingency** fav
 * **We've looked at that in a sense already**
 * **but the model importantly also includes relationships how are the variables connected to other variables**, in particular, how might they can be connected in a causal way**
 * The certain causes that we are interested in such as polices have cetain effects in the world.
-* we're **fundamentally interested in** casuse and effect relationships
+> we're **fundamentally interested in** casuse and effect relationships
 * that's the most basic model in a sense
 * 
 
