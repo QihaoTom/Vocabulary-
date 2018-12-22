@@ -129,10 +129,9 @@ patrol mastermind estrangement **seamless** disentangle tort **contingency** fav
 * **marinate** the duck 泡在酱汁中 ／ butcher the duck 宰鸭 ／ garnish the duck 配菜 ／ make it starchy / mouth glands & drool 冒口水 ／ amp up with the spice / poach in a chicken broth 水煮 ／ feel a jolt 肚子叫 ／ scrounge up some people 找人打球 ／ lactose intorlerant 乳糖不耐受 ／ silent hint of milk / nibble away 咬一小口 ／ crumb 面包屑 ／ a tray of  chips 一盘饼干 ／ cologne 古龙水 ／ irresistible 不能抵挡 / caviar 鱼子酱 ／ make a pun 双关 ／ take a lap 遛弯儿 / can't ask for more than that / prolong 延长 / savory 好吃的 ／ 
 
 ## Research Design
-* **so that's how they get their names**
-* **so that's how they get their names**
-* **so that's how they get their names**
---
+> **so that's how they get their names**
+> **so that's how they get their names**
+> **so that's how they get their names**
 
 * **the term are widely used in research**
 * **so implied in a model also is** the notion of a causal mechanism
