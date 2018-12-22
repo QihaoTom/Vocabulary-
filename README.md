@@ -149,7 +149,7 @@ patrol mastermind estrangement **seamless** disentangle tort **contingency** fav
 * **your skills are rewarded** in the job market
 * **you can leverage a kind of social capital**
 * **and that sth actually**
-* **people use those terms quite interchangeablely so you may hear them used in different ways**
+> **people use those terms quite interchangeablely so you may hear them used in different ways**
 * **so model does that for us**
 * **there are two basic ways of represeting a theory using a model**
 * **but in either case the model has variables in it**
