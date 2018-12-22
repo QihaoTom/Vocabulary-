@@ -170,12 +170,25 @@ patrol mastermind estrangement **seamless** disentangle tort **contingency** fav
 * a program run by polic system, there are all kinds of initiatives and programs
 > this is really sort of the essential building block of the work of public management.
 * you'll typically find a program information about it on a press release that a rolled out 
-* site visits / original grant applicants / assault rifles / small handguns / bringing the guns inward / bring the gun awareness to a lot of people / firearms / law-abiding citizens良民 ／ cause harm / fuel a small war / drawing tools / gun buyback programs / in the last strcutional video / 
+* site visits / original grant applicants / assault rifles / small handguns / bringing the guns inward / bring the gun awareness to a lot of people / firearms / law-abiding citizens良民 ／ cause harm / fuel a small war / drawing tools / gun buyback programs / in the last strcutional video / **intervening variables** / insert tab / use these ovals to represnt variables and arrows represent the relationships / too informative / **paintbrush格式刷** ／ along with pathway路径 link ／**anchor these arrows** / logically consistent / multiply the segments of the path / label is **too vague** / confuse yourself / **fairly self-evident** 显而易见的 / the longer leaps / don't automatically know / **cash incentive** / turn in their guns / social motivation / 
 > the documentation that exists for program and interviewing people and that **may all be part of what goes into developing a logic model**
 * we are gonna follow the advice that I gave there of starting by idetifying the outcome
-* 
-
-
+* show more specifically how the program achieve the outcome
+* we're also going to use the text box here to kind of label some of the relationships as being plus or minus
+* so there is the gunback program as the indenpdent variablea is program and depedent variable is gun violence.
+* how that can be thought of as a variable
+* **what I would encourage you to think about is the notion of what's called a dummy variable. it's either you have a program or you don't have a program**
+* is being coded by one then the program has a direction. Having a program is associated with less violence. 
+* **sparse 空，简单**
+> use that paintbrush to copy kind of your formatting
+* I am gonna do that
+> they move when you move the variables that turns out to be helpful later on as you start to come in as the diagram gets  more complex
+> by thinking aobut how the program leads to the number of guns being reduced in the communtiy
+> so we can kind of back up
+* if you've done a good job of articulating the intervening variables then you shouldn't have a direct relationship left over
+> so there needs to be endorsement to build awareness of the program and also the program has to have features to motivate people to participate
+> I'm sure this program has a advertising public relations element to it so that I want to include this.
+> I am not articulating a link that's already there necessarily
 
 
 
