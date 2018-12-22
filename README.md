@@ -134,7 +134,8 @@ patrol mastermind estrangement **seamless** disentangle tort **contingency** fav
 * **so implied in a model also is** the notion of a causal mechanism
 * **there must be a way in which** X and Y are related
 * **A process by which change in** X leads to change or produces change in Y
-* so the notion of a causal mechaism **is a very important part of the process**.
+> so the notion of a causal mechaism **is a very important part of the process**.
+> it's important to be clear about what the positive a negative relationship mean.
 * **so if** the cause and crime is the effect and disorder is the independent variable, another key question
 * **those sorts of actvities**, **signal that** people are not reporting things or monitoring the streets.
 * **it could that** you may thinking about earnings 
@@ -155,8 +156,24 @@ patrol mastermind estrangement **seamless** disentangle tort **contingency** fav
 * The certain causes that we are interested in such as polices have cetain effects in the world.
 > we're **fundamentally interested in** casuse and effect relationships
 * that's the most basic model in a sense
+* if we assume that disorder is the cause of crime **by allowing more disorder to occur then it triggers crime** because people with more criminial intentions read those signals and commit more serious crime.
+* is not a positive relationship **as in a sense that we value or want**
+* that's hence the name positive
+* if that's the pattern, then we would get this kind of scatter plot. 
+* **foundations are increasingly using and visible logic models all over the field of public affairs**
+* What **the usefulness of a logic model**
+> a logic model helps communicate to design or logic of a program then the name logic model comes from the fact that they illustrate the logic of a program meaning the way in which a programs works
+* but they also help identify performance indicators, often you need to monitor a tracker program
+* you may discover ways in which the program ought to redesigned or improved.
+> I hope you take out of this course that the skill take with you because I think it's a useful skills to have.
+> you don't want to be overwhelmed with a lot of details and multiple activities going on at the same time  
+* a program run by polic system, there are all kinds of initiatives and programs
+> this is really sort of the essential building block of the work of public management.
+* you'll typically find a program information about it on a press release that a rolled out 
+* site visits / original grant applicants / assault rifles / small handguns / bringing the guns inward / bring the gun awareness to a lot of people / firearms / law-abiding citizens良民 ／ cause harm / fuel a small war / drawing tools / gun buyback programs / in the last strcutional video / 
+> the documentation that exists for program and interviewing people and that **may all be part of what goes into developing a logic model**
+* we are gonna follow the advice that I gave there of starting by idetifying the outcome
 * 
-
 
 
 
