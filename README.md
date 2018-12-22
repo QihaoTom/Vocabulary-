@@ -128,12 +128,37 @@ patrol mastermind estrangement **seamless** disentangle tort **contingency** fav
 ## BuzzFeedVideo
 * **marinate** the duck 泡在酱汁中 ／ butcher the duck 宰鸭 ／ garnish the duck 配菜 ／ make it starchy / mouth glands & drool 冒口水 ／ amp up with the spice / poach in a chicken broth 水煮 ／ feel a jolt 肚子叫 ／ scrounge up some people 找人打球 ／ lactose intorlerant 乳糖不耐受 ／ silent hint of milk / nibble away 咬一小口 ／ crumb 面包屑 ／ a tray of  chips 一盘饼干 ／ cologne 古龙水 ／ irresistible 不能抵挡 / caviar 鱼子酱 ／ make a pun 双关 ／ take a lap 遛弯儿 / can't ask for more than that / prolong 延长 / savory 好吃的 ／ 
 
-
-
-
-
-
-
+## Research Design
+* **so that's how they get their names**
+* **so that's how they get their names**
+* **so that's how they get their names**
+--
+* **the term are widely used in research**
+* **so implied in a model also is** the notion of a causal mechanism
+* **there must be a way in which** X and Y are related
+* **A process by which change in** X leads to change or produces change in Y
+* so the notion of a causal mechaism **is a very important part of the process**.
+* **so if** the cause and crime is the effect and disorder is the independent variable, another key question
+* **those sorts of actvities**, **signal that** people are not reporting things or monitoring the streets.
+* **it could that** you may thinking about earnings 
+* **maybe if you have more earnings, you can get an education certainly**
+* **One of the causal effect that has is it increase your earning potentials**
+* so if you have a high education **as opposed to** dropping out of high school, you expected to earn more.
+* **If we are thinking about it in that way, eduation is the cause.** 
+* what you may have thought of things like, if you have more education, you will have more skills.
+* **your skills are rewarded** in the job market
+* **you can leverage a kind of social capital**
+* **and that sth actually**
+* **people use those terms quite interchangeablely so you may hear them used in different ways**
+* **so model does that for us**
+* **there are two basic ways of represeting a theory using a model**
+* **but in either case the model has variables in it**
+* **We've looked at that in a sense already**
+* **but the model importantly also includes relationships how are the variables connected to other variables**, in particular, how might they can be connected in a causal way**
+* The certain causes that we are interested in such as polices have cetain effects in the world.
+* we're **fundamentally interested in** casuse and effect relationships
+* that's the most basic model in a sense
+* 
 
 
 
