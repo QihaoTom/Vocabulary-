@@ -139,6 +139,9 @@ I gonna use that too** / that is the winner / weird **cravings**渴望 ／ whisp
 > the aim is to try to understand a situation to understand people, orgranzation or whatever.
 > you're learning as you're doing the interviews which influnences further interviews
 
+## Policy Process
+* sth **but drifted** 随波逐流（不用） until ／ **inherently unequal** ／ **struck down** 击倒 ／ **galvanizing events** 应对的事件 ／ vestige 残余 / unambiguous清楚的 ／ **substantial** 实质上的进展 prgress
+
 
 
 
