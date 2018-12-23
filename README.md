@@ -133,6 +133,8 @@ I gonna use that too** / that is the winner / weird **cravings**渴望 ／ whisp
 * fishy可疑的 / 
 
 ## Research Design
+
+### Theory and Model
 > **so that's how they get their names**
 * **the term are widely used in research**
 * **so implied in a model also is** the notion of a causal mechanism
@@ -193,6 +195,22 @@ I gonna use that too** / that is the winner / weird **cravings**渴望 ／ whisp
 > so there needs to be endorsement to build awareness of the program and also the program has to have features to motivate people to participate
 > I'm sure this program has a advertising public relations element to it so that I want to include this.
 > I am not articulating a link that's already there necessarily
+
+### Qualiatative Research
+* because it they play a role **throughout** the research process.
+* and it helps **integrate** both a quantitative and a qualitative research perspective as we move later topics.
+* how analysis works **a bit of that**
+* a few ethical issues that are unique to qualitative research
+> Quantitative research may be **oversimplifies** things it **redueces rich detail of social life** into numerical measures.
+* too simplistic / the criticism of the qualitative / rigorous and scientific / subjective interpretation / asscociated with advances in stats and community computing / over the quantification of social research / but in many ways / to have a bit of both / **triangualtion** / fit together / illustrate the idea / to begin with an exploratory phase of research which tends to be mostly qualitative / on the ground observations / 
+> this is a fairly long debate, it goes back to the origins of the social sciences whch began more qualitatively with more interpretive methods
+> and then there was a qualitative push back in the 70s.
+> they are ways in which they work well together that in some ways the best approach is some combination of quantitative and qualitative methods that's sometimes referred to as mixed methods approach.
+> evidence is from several sources gives you a better feel for what might be real and true about a situation.
+> The idea that several sources data when they converge on a finding, it offers more proofor more come from confirmation.
+> **then you're in a better position to do** more systematic quantitative research **which gets us to the second phase**
+* we want to **expand our coverage**, look at a broader population **take a more representative sample**, to do a survey
+* 
 
 
 
