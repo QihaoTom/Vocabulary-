@@ -12,89 +12,11 @@
 * stinks
 
 ## The Met | Delacroix
-* courting danger
-rarity and beauty
-masculinity 
-The regal body
-adornments
-Rebuke to mortality
-Miraculously
-Intricate composition 
-Deities
-Beaded broad
-Replica
-Mummies
-The deceased
-Monumentality 
-Ascetic Palette
-onward
-austere
-Innate gift 
-Widely known
-magisterial forest
-Ongoing practice
-Own retreat
-Mounted on
-In the foreground
-Foliage
-Drapery
-Robes
-Varnished
-Darken
-Atmospheric effects
-Pastel of
-Counterpoint
-Resolved
-Aureole
-Indemnity
+* courting danger / rarity and beauty / masculinity 男子气概 ／ The regal body / adornments / Rebuke to mortality/ Miraculously / Intricate composition  / Deities / Beaded broad / Replica / Mummies / The deceased / Monumentality  / Ascetic Palette / onward / austere ／ Innate gift  ／ Widely known ／ magisterial forest ／ Ongoing practice ／ Own retreat 休息寓所／ Mounted on 安在／ In the foreground 照片突出位置／ Foliage 叶子 ／ Drapery 帷帐 ／ Robes 长袍／Varnished 涂漆的 ／ Darken 变暗／ Atmospheric 神秘感 effects ／ Pastel 蜡笔画 of ／ Counterpoint 对比／ Resolved 决定／ Aureole ／ Indemnity / Retrospective 回顾 mounted / Muses / Philippe Rousseau / Still life with bacon / Everyday details / Acquigny / Garnished / Sprig of bay leaves  / In fashionable circle / Debuted / Stag / hare / Modelled / Undertaken/ Minor variations  / Amass / Forego nudes / Charcoal and pastel / Catalogue / Evocatively  / Ribald verses / Experimentation  / Hues / The tub / Polychromy / Burnish / Chartreuse  / Seurat or Van Gogh / Devotional painting  / Patron saints  / Watercolor  / Underworld / Demon / Flaming pit / Dissonant color / Exaggerated Poes / Sovereign brutality  / Bolstered / Unafraid / The psyche / Juxtaposition  / Transoceanic trade / Comestibles  / Foothills / Ethiopia / Cobalt / Peony scroll / Reminiscent / Stalactites ／ Ongoing practice ／ Own retreat 休息寓所／ Mounted on 安在／ In the foreground 照片突出位置／ Foliage 叶子 ／ Drapery 帷帐 ／ Robes 长袍／Varnished 涂漆的 ／ Darken 变暗／ Atmospheric 神秘感 effects ／ Pastel 蜡笔画 of ／ Counterpoint 对比／ Resolved 决定／ Aureole ／ Indemnity / Retrospective 回顾 mounted / Muses / Philippe Rousseau / Still life with bacon / Everyday details / Acquigny / Garnished / Sprig of bay leaves  / In fashionable circle / Debuted / Stag / hare / Modelled / Undertaken/ Minor variations  / Amass / Forego nudes / Charcoal and pastel / Catalogue / Evocatively  / Ribald verses / Experimentation  / Hues / The tub / Polychromy / Burnish / Chartreuse  / Seurat or Van Gogh / Devotional painting  / Patron saints  / Watercolor  / Underworld / Demon / Flaming pit / Dissonant color / Exaggerated Poes / Sovereign brutality  / Bolstered / Unafraid / The psyche / Juxtaposition  / Transoceanic trade / Comestibles  / Foothills / Ethiopia / Cobalt / Peony scroll / Reminiscent / StalactitesOngoing practice ／ Own retreat 休息寓所／ Mounted on 安在／ In the foreground 照片突出位置／ Foliage 叶子 ／ Drapery 帷帐 ／ Robes 长袍／Varnished 涂漆的 ／ Darken 变暗／ Atmospheric 神秘感 effects ／ Pastel 蜡笔画 of ／ Counterpoint 对比／ Resolved 决定／ Aureole ／ Indemnity / Retrospective 回顾 mounted / Muses / Philippe Rousseau / Still life with bacon / Everyday details / Acquigny / Garnished / Sprig of bay leaves  / In fashionable circle / Debuted / Stag / hare / Modelled / Undertaken/ Minor variations  / Amass / Forego nudes / Charcoal and pastel / Catalogue / Evocatively  / Ribald verses / Experimentation  / Hues / The tub / Polychromy / Burnish / Chartreuse  / Seurat or Van Gogh / Devotional painting  / Patron saints  / Watercolor  / Underworld / Demon / Flaming pit / Dissonant color / Exaggerated Poes / Sovereign brutality  / Bolstered / Unafraid / The psyche / Juxtaposition  / Transoceanic trade / Comestibles  / Foothills / Ethiopia / Cobalt / Peony scroll / Reminiscent / StalactiteqOngoing practice ／ Own retreat 休息寓所／ Mounted on 安在／ In the foreground 照片突出位置／ Foliage 叶子 ／ Drapery 帷帐 ／ Robes 长袍／Varnished 涂漆的 ／ Darken 变暗／ Atmospheric 神秘感 effects ／ Pastel 蜡笔画 of ／ Counterpoint 对比／ Resolved 决定／ Aureole ／ Indemnity / Retrospective 回顾 mounted / Muses / Philippe Rousseau / Still life with bacon / Everyday details / Acquigny / Garnished / Sprig of bay leaves  / In fashionable circle / Debuted / Stag / hare / Modelled / Undertaken/ Minor variations  / Amass / Forego nudes / Charcoal and pastel / Catalogue / Evocatively  / Ribald verses / Experimentation  / Hues / The tub / Polychromy / Burnish / Chartreuse  / Seurat or Van Gogh / Devotional painting  / Patron saints  / Watercolor  / Underworld / Demon / Flaming pit / Dissonant color / Exaggerated Poes / Sovereign brutality  / Bolstered / Unafraid / The psyche / Juxtaposition  / Transoceanic trade / Comestibles  / Foothills / Ethiopia / Cobalt / Peony scroll / Reminiscent / Stalactites
+Ongoing practice ／ Own retreat 休息寓所／ Mounted on 安在／ In the foreground 照片突出位置／ Foliage 叶子 ／ Drapery 帷帐 ／ Robes 长袍／Varnished 涂漆的 ／ Darken 变暗／ Atmospheric 神秘感 effects ／ Pastel 蜡笔画 of ／ Counterpoint 对比／ Resolved 决定／ Aureole ／ Indemnity / Retrospective 回顾 mounted / Muses / Philippe Rousseau / Still life with bacon / Everyday details / Acquigny / Garnished / Sprig of bay leaves  / In fashionable circle / Debuted / Stag / hare / Modelled / Undertaken/ Minor variations  / Amass / Forego nudes / Charcoal and pastel / Catalogue / Evocatively  / Ribald verses / Experimentation  / Hues / The tub / Polychromy / Burnish / Chartreuse  / Seurat or Van Gogh / Devotional painting  / Patron saints  / Watercolor  / Underworld / Demon / Flaming pit / Dissonant color / Exaggerated Poes / Sovereign brutality  / Bolstered / Unafraid / The psyche / Juxtaposition  / Transoceanic trade / Comestibles  / Foothills / Ethiopia / Cobalt / Peony scroll / Reminiscent / Stalactites
+Darken 变暗／ Atmospheric 神秘感 effects ／ Pastel 蜡笔画 of ／ Counterpoint 对比／ Resolved 决定／ Aureole ／ Indemnity / Retrospective 回顾 mounted / Muses / Philippe Rousseau / Still life with bacon / Everyday details / Acquigny / Garnished / Sprig of bay leaves  / In fashionable circle / Debuted / Stag / hare / Modelled / Undertaken/ Minor variations  / Amass / Forego nudes / Charcoal and pastel / Catalogue / Evocatively  / Ribald verses / Experimentation  / Hues / The tub / Polychromy / Burnish / Chartreuse  / Seurat or Van Gogh / Devotional painting  / Patron saints  / Watercolor  / Underworld / Demon / Flaming pit / Dissonant color / Exaggerated Poes / Sovereign brutality  / Bolstered / Unafraid / The psyche / Juxtaposition  / Transoceanic trade / Comestibles  / Foothills / Ethiopia / Cobalt / Peony scroll / Reminiscent / Stalactites
+Darken 变暗／ Atmospheric 神秘感 effects ／ Pastel 蜡笔画 of ／ Counterpoint 对比／ Resolved 决定／ Aureole ／ Indemnity / Retrospective 回顾 mounted / Muses / Philippe Rousseau / Still life with bacon / Everyday details / Acquigny / Garnished / Sprig of bay leaves  / In fashionable circle / Debuted / Stag / hare / Modelled / Undertaken/ Minor variations  / Amass / Forego nudes / Charcoal and pastel / Catalogue / Evocatively  / Ribald verses / Experimentation  / Hues / The tub / Polychromy / Burnish / Chartreuse  / Seurat or Van Gogh / Devotional painting  / Patron saints  / Watercolor  / Underworld / Demon / Flaming pit / Dissonant color / Exaggerated Poes / Sovereign brutality  / Bolstered / Unafraid / The psyche / Juxtaposition  / Transoceanic trade / Comestibles  / Foothills / Ethiopia / Cobalt / Peony scroll / Reminiscent / Stalactites
 Retrospective mounted
-Muses
-Philippe Rousseau
-Still life with bacon
-Everyday details
-Acquigny
-Garnished
-Sprig of bay leaves 
-In fashionable circle
-Debuted
-Stag / hare
-Modelled
-Undertaken
-Minor variations 
-Amass
-Forego nudes
-Charcoal and pastel
-Catalogue
-Evocatively 
-Ribald verses
-Experimentation 
-Hues
-The tub
-Polychromy
-Burnish
-Chartreuse 
-Seurat or Van Gogh
-Devotional painting 
-Patron saints 
-Watercolor 
-Underworld
-Demon
-Flaming pit
-Dissonant color
-Exaggerated Poes
-Sovereign brutality 
-Bolstered
-Unafraid
-The psyche
-Juxtaposition 
-Transoceanic trade
-Comestibles 
-Foothills
-Ethiopia
-Cobalt
-Peony scroll 
-Reminiscent
-Stalactites
 
 ## Jeray
 * hole in the wall  苍蝇小馆
