@@ -126,7 +126,8 @@ patrol mastermind estrangement **seamless** disentangle tort **contingency** fav
 * indisutbly helped save lives / maintain global order / make the necessary reforms to balance power among its members and adequately address / falling through tracks /   
 
 ## BuzzFeedVideo
-* **marinate** the duck 泡在酱汁中 ／ butcher the duck 宰鸭 ／ garnish the duck 配菜 ／ make it starchy / mouth glands & drool 冒口水 ／ amp up with the spice / poach in a chicken broth 水煮 ／ feel a jolt 肚子叫 ／ scrounge up some people 找人打球 ／ lactose intorlerant 乳糖不耐受 ／ silent hint of milk / nibble away 咬一小口 ／ crumb 面包屑 ／ a tray of  chips 一盘饼干 ／ cologne 古龙水 ／ irresistible 不能抵挡 / caviar 鱼子酱 ／ make a pun 双关 ／ take a lap 遛弯儿 / can't ask for more than that / prolong 延长 / savory 好吃的 ／ 
+* **marinate** the duck 泡在酱汁中 ／ butcher the duck 宰鸭 ／ garnish the duck 配菜 ／ make it starchy / mouth glands & drool 冒口水 ／ amp up with the spice / poach in a chicken broth 水煮 ／ feel a jolt 肚子叫 ／ scrounge up some people 找人打球 ／ lactose intorlerant 乳糖不耐受 ／ silent hint of milk / nibble away 咬一小口 ／ crumb 面包屑 ／ a tray of  chips 一盘饼干 ／ cologne 古龙水 ／ irresistible 不能抵挡 / caviar 鱼子酱 ／ make a pun 双关 ／ take a lap 遛弯儿 / can't ask for more than that / prolong 延长 / savory 好吃的 ／ nemesis对手 ／ too weird to be true / peanut butter bacon burger / that's a consistency I want **right there** / **
+I gonna use that too** / that is the winner / weird **cravings**渴望 ／ whisper it / cider / **leg is like quivering 好吃到颤抖** ／ **the steak is prominent** / I am excited about this burger / get a sound effect / unintoxicated 没醉了 ／ initiator 发起人 ／ unleavened 未发酵 / today on worth it, we'are gonna try three pies **at three drastically different price points** to find out which one is the most worth it at its price! / I more down to have pie / potluck 百家菜 ／ 
 
 ## Weibo
 * fishy可疑的 / 
