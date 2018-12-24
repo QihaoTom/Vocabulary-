@@ -160,7 +160,8 @@ I gonna use that too** / that is the winner / weird **cravings**渴望 ／ whisp
 ### Mark Zuckerberf Commencement address
 * how many of you  / millennials 21世纪人 instinctively本能地 ／ **a renewed sense of purpose** / broom 扫帚 ／ reliably确实 come from / eliminating >> limit / juvenile detention 少管所 ／ turn out differently / generational challenge / tell me clearly that / we didn' know anything about that / have an impact / a couple years / launch this / nearly everyone / startup dream / tense 紧迫的 arguement ／ imposter骗子 ／ by taking on projects / 
 
-
+### Hilarious truth of being a mom
+* give me a minute / what do you need? / Can I have this ? / **Why are you bring your bag into the library?** / **You came all the way here to ask me if you could have them?** / You want me to open drinks while I am doing / **That's what you want?** / Go, I need a minute / For the love / What can I help you with / I need to read a book to you / I don't want to be read to while I am busy / I want to be left alone / I will listen to you in a second / I love that you love to read / I would like to / can you just shut door for me ? / do you have my wallet, I can't find it / **What about**
 
 
 
