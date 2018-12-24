@@ -163,6 +163,9 @@ I gonna use that too** / that is the winner / weird **cravings**渴望 ／ whisp
 ### Hilarious truth of being a mom
 * give me a minute / what do you need? / Can I have this ? / **Why are you bring your bag into the library?** / **You came all the way here to ask me if you could have them?** / You want me to open drinks while I am doing / **That's what you want?** / Go, I need a minute / For the love / What can I help you with / I need to read a book to you / I don't want to be read to while I am busy / I want to be left alone / I will listen to you in a second / I love that you love to read / I would like to / can you just shut door for me ? / do you have my wallet, I can't find it / **What about**
 
+### Measurement
+* **fatigue** >> tired / **protpocls** 手册 ／ grade point / illustrate shortly / fairly consistent / rather inconsistent result / **the precision of** the data less statistical prescision / **is comprised** / **water down** **attenuate**relationships 减轻 **an attenuation** ／ become more **widespread** / this bottem scatterplot  with a lot of error / become much flatter / the real relationship you may be missing it because of poor reliability in your measurement / heart attacks in urban areas / random error that we don't **detect** / consequences >> results / directedly related to / quality or the cleanliness of streets in a city / **clipboards** 大画板 ／ **sidewalks** / **split** 分开 ／ reusing / inherent 本来 ／ 
+
 
 
 
