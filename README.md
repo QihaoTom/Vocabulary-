@@ -142,6 +142,24 @@ I gonna use that too** / that is the winner / weird **cravings**渴望 ／ whisp
 ## Policy Process
 * sth **but drifted** 随波逐流（不用） until ／ **inherently unequal** ／ **struck down** 击倒 ／ **galvanizing events** 应对的事件 ／ vestige 残余 / unambiguous清楚的 ／ **substantial** 实质上的进展 prgress
 
+## Jimmy Fallon 
+### Whisper Challenge Veterans Day Reunion Surprise
+* an **introvert** 内向的人 ／ is in **camouflage** 迷彩伪装 ／ **pram or stroller** 婴儿车 ／ **bin** 箱子 ／ **schlep** around 搬运 ／ majestically / snuck(sneak)溜进去 ／ limo 豪车 ／ I can't get into it / nativity scence 出生 ／ tiled room 砖房 ／ make a gif / **break a leg** 祝成功>>good luck 
+
+### Just tell him you're the president 
+* upholstery装饰物 ／ knockoff山寨 ／ submarine 潜水艇 ／ I got some stuff to do / hop in 上车 ／ compress into  压缩 ／ it's a nicklodeon thing儿童频道 ／ take a walk / how are you doing / lost your **anonymity** 失去隐私 ／ that's how I do it, I don't really need a reason I think / **jarring** elements 不和谐的元素 ／ **hoopla** 喧嚣 ／ what the hell it is / there are times where you think here's where Kennedy was hanging out / thermostat 恒温器 ／ **slid**不小心 （slide） ／ creators / Rushmore carve 总统山 ／ tumble down a stair 摔倒 ／ vomiting 呕吐 ／ **headstrong**刚愎自用 ／ **knucklehead** 傻瓜 ／ a fair sknned guy / **lather himself in sunscreen** 涂满防晒霜 / a lot of **attrition** 损伤 ／ hit the line ／ **punt a lot** 下赌注 ／ out of mind 疯狂 ／ pretty sizable 很多很多 ／ feet hurt / privilege is toxic / how do I seem to you / **probe** / **calibrate** dealing with 标定 ／ funny joyful / **quasi retired man** of leisure / **heckler** 质疑者 ／ bad stupid dumber **stress level** / **sully**>> ruin your show / **give you a shot** to try / appreciably cooler / **lurking through 潜伏** 
+
+### Bill Gate Chats with Ellen for the first time
+* it was a amazing group / almost / is that right? / and it just happened? / better off / a Porsche 保时捷 ／ wasn't that of big deal / my thing was that / stunned surprised worried conservative / meet the payroll / mutilple out to / what point you start to relax / be viewed as / extravagant pace 过度 / an indulgence爱好 a huge indulgence ／ in terms of crazy things / **indoor trampoline** 蹦床 ／ What is your main focus right now ? / pick the glbal health as a big thing / the fact that / so there's been huge progress over the last 18 years / malaria 疟疾 diarrhea 腹泻 ／ getting them out 分发 ／ that's our main thing / **how do you do that?** what can we do / to take care of / **there are some really phenomenal** teachers / **there are other people that are helping** /  **priorities** continuing doing that 重视 ／ all around the world 
+
+### Steve Jobs Introducing The iphone At MacWorld 2007
+* This is a day I've been looking forward to for two and a half years. / a **breakthrough** device 突破 ／ a **leapfrog** product 跨越式的产品 way smarter super easy to use / interplay of 相互影响 ／ how do you solve this / a bitmap screen /  get rid of bottons / stylus 笔 ／ it works like **magic** / **patented** it / interfaces 界面 ／ **syncing** 同步 / crippled stuff 不好用的东西 ／ how we look at this / you set up what you want / something wonderful / **out there** / **tray** for sim card / don't get **spurious** 不必要的 inputs from your face ／ **ambient** light  环境光 ／ accelerometer加速器 ／ pop out 出生 ／ **relent**变温和 a few months later ／ **proportionally spaced 成比例** ／ dots will connect down your future / your gut destiny life **karma** / finest , greatest creation / **diverge** 分歧 ／ **devastating** 毁灭性的 ／ change that one bit / it was awful tasting medicine but I guess the patient needed it / don't lose faith /  I am convinced that the only thing that kept me going was I loved what I did. you've got to find what you love./ don't settle / years are roll on / avoid the trap of thinking / tumor 瘤 ／ pancreas 胰腺 ／ incurable 绝症 ／ biopsy 活组织检查 ／ sedated >> calm down / clear away / dogma 教条／ intuition / **poetic touch**诗意的描写 ／ hitchhiking 顺风车 ／ I have always wished that / 
+> People who are really serious about software should make their own hardware.
+> Stay hungry, Stay foolish.
+
+### Mark Zuckerberf Commencement address
+* how many of you  / millennials 21世纪人 instinctively本能地 ／ **a renewed sense of purpose** / broom 扫帚 ／ reliably确实 come from / eliminating >> limit / juvenile detention 少管所 ／ turn out differently / generational challenge / tell me clearly that / we didn' know anything about that / have an impact / a couple years / launch this / nearly everyone / startup dream / tense 紧迫的 arguement ／ imposter骗子 ／ by taking on projects / 
+
 
 
 
