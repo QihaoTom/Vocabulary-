@@ -176,7 +176,7 @@ I gonna use that too** / that is the winner / weird **cravings**渴望 ／ whisp
 / paraphrase 释义 / **volatile** 动荡的 / **hinder** 阻碍 or impede | get way of / openly apologised 公开道歉 ／ frankness = open honest ／ falsehoods 假话 ／ candor 直白= open ／ **cross off** 删除 ／ appease = satisfy 平息 ／ stroke ／ prefixes | suffixes | roots ／road signs(detour | straight ahead) | **semicolon** 分号 ／ **flashcard**教学用的抽认卡 | vocabulary journal | word group | parts of speech | works in sentences | in context ／ **synonyms & autonyms** **同义词** ／ build vocabulary ／ **derive**源于 a word meaning ／ read the sentences literally and not imaginatively ／ **bump up**提升 
 
 ### 3 week in TX
-##*Six years* Film produced in TX
+## *Six years* Film produced in TX
 *Jan 29th*
 * give me a ride | drop you off ／ **because there is no one else** ／ i konw ／ boom ／ **pool** record ／ **what deal with that hat** ／ I just started my junior year ／ elementray education ／ there's this **flowing creativity**思如泉涌 all the time ／ you are great with them ／ **there we go** ／we need you get an internship / will you do me a favor / he did that **for free** / the tour is **winding down**平缓下来 /  We've got plans for / the next time you come thoroguh there / soon enoguh / nervous | uncomfortable / other than / I mean / you are missing out / did you **give it a listen** /  you come grab me / let's go set off something / **undisputed** 毫无疑问的 / **cornerstone** / after a breif rally 集会 / **portend** 预示 / annex / greenback美钞 ／ **crumbling破烂的 infrastucture** ／ check inflation ／ **plunge to depths陷入深渊** ／ gain strength ／ **prompt | latest surge情感的突发** ／ i bet ／ at a faster rate ／ a widely cited precedent先例 ／  widen budget deficits ／  **pivotal**关键事物 ／ idle闲置的
 --
@@ -199,11 +199,14 @@ Truman ／ **rescind**解除 ／ advanced class ／ **decisive battle** ／ then
 * enforcement ／ attempt ／ fight for
 
 --
+
 ### Guardian | Trump is making China great again
 * **dismay**灰心 to discover ／ wooed customer争取 / a **huge** win | **elegant** Enghlish country house / the liberalising自由化 trend of the previous three decades /  discomfiting 挫败western allies / **squeezing** internal markets **dissent** and loyalty to the regime / the spectacular success of China's ecnomic opening and partial political relaxtion would lead to a more open society and more **political inclusion** / **steer**== let / **political pluralism**多元主义 and tolerance / **shore up** the party / in **defiance** 反抗of what an **inevitable trend**: that an emerging middle class would always force a political opening / trade **initiative** /  tear up its own rules / **reap**收获 == get the benefit and **contain** the inevitable damage
 >Thucydides traps | Hermann Hesse | Pandora's box | Damocles sword | a crafted speech | fulsome homage 
 * **cramming**>>many of references / polite scepticism | an almost uncritical welcome / **audacious** 无畏的 | **contention**争论 ／ it **pales in微不足道 (useless)comparison to** ／ a world escalating tensions and disruption ／ the burden of **censure**责备(blame critisize) ／ objectionable令人不快的 ／ western countries **scrambled 争先to** access the Chinese market / **beacon** 灯塔 dumb / **staunch**忠实可靠的 / impoverished / one belt on road policy | it seeks to build up infrasture in elsewhere / factory of the world
+
 --
+
 * **patriotic spirit**爱国主义精神
 * **is oscillating widely**剧烈波动
 * equip elite with foreign knowledge and skills
