@@ -166,6 +166,55 @@ I gonna use that too** / that is the winner / weird **cravings**渴望 ／ whisp
 ### Measurement
 * **fatigue** >> tired / **protpocls** 手册 ／ grade point / illustrate shortly / fairly consistent / rather inconsistent result / **the precision of** the data less statistical prescision / **is comprised** / **water down** **attenuate**relationships 减轻 **an attenuation** ／ become more **widespread** / this bottem scatterplot  with a lot of error / become much flatter / the real relationship you may be missing it because of poor reliability in your measurement / heart attacks in urban areas / random error that we don't **detect** / consequences >> results / directedly related to / quality or the cleanliness of streets in a city / **clipboards** 大画板 ／ **sidewalks** / **split** 分开 ／ reusing / inherent 本来 ／ 
 
+## SHSU
+### GRE Glossary
+*Feb 12*
+* Colorado / undecipherable /  literally /  primary secondary
+--
+*Feb 13*
+* he would rather be disliked gainsaid否认/ trick you up / facetious = humorious / **precarious**不稳定的 shaky / text completion短文填空 /  sentence equivalence句子等价 / **contradicted**矛盾 / **intact**毫发无伤 ／**specimen** 样品／ an **elusive** idea 难懂的 ／ **ornate**华丽的 | **dilapidated** 荒废的 = run down, unmaintain ／ **orator** = speaker ／ negitive | positive ／ **translucent** 半透明的 / **diminutive**>> small / **ostentatious** = showy / **hold on** / **forlorn** 孤苦伶仃 ／ miscreant 罪大恶极之人 ／ interloper 闯入者 ／duress 胁迫 ／ ebullience 奔放 ／ ignoble 卑鄙的 ／ conversely相反地 / **retain**>> keep 保持
+/ paraphrase 释义 / **volatile** 动荡的 / **hinder** 阻碍 or impede | get way of / openly apologised 公开道歉 ／ frankness = open honest ／ falsehoods 假话 ／ candor 直白= open ／ **cross off** 删除 ／ appease = satisfy 平息 ／ stroke ／ prefixes | suffixes | roots ／road signs(detour | straight ahead) | **semicolon** 分号 ／ **flashcard**教学用的抽认卡 | vocabulary journal | word group | parts of speech | works in sentences | in context ／ **synonyms & autonyms** **同义词** ／ build vocabulary ／ **derive**源于 a word meaning ／ read the sentences literally and not imaginatively ／ **bump up**提升 
+
+### 3 week in TX
+##*Six years* Film produced in TX
+*Jan 29th*
+* give me a ride | drop you off ／ **because there is no one else** ／ i konw ／ boom ／ **pool** record ／ **what deal with that hat** ／ I just started my junior year ／ elementray education ／ there's this **flowing creativity**思如泉涌 all the time ／ you are great with them ／ **there we go** ／we need you get an internship / will you do me a favor / he did that **for free** / the tour is **winding down**平缓下来 /  We've got plans for / the next time you come thoroguh there / soon enoguh / nervous | uncomfortable / other than / I mean / you are missing out / did you **give it a listen** /  you come grab me / let's go set off something / **undisputed** 毫无疑问的 / **cornerstone** / after a breif rally 集会 / **portend** 预示 / annex / greenback美钞 ／ **crumbling破烂的 infrastucture** ／ check inflation ／ **plunge to depths陷入深渊** ／ gain strength ／ **prompt | latest surge情感的突发** ／ i bet ／ at a faster rate ／ a widely cited precedent先例 ／  widen budget deficits ／  **pivotal**关键事物 ／ idle闲置的
+--
+*Jan 30*
+* double accounting
+*Jan 31*
+* general well-being / **primarily** / **altruism**利他主义| atheism无神论 / **intervention** / vineyard /**ammunition**军火 / 
+expectionally favorable conditions / prescriptive & descriptive /  accuately / **ambiguous**模糊不清的 
+*Feb 1*
+* pile up / chidish / you well-being / pose / economic expansion / leisure / less developed / work against / proverty trap / suffer vs afford / flat
+--
+*Feb 2*
+* lieutenant 中尉 / government purchase /  desirable moral attributes道德属性 / buyer & seller / incorporate / is associated with / closely / elminating holidays / vastly / capital deprecation / fail to account for 解释 ／ auctioneer 拍卖商 ／ shave hair
+make up for the loss ／ dots ／ axis ／ drill ／  break you leg ／ pitch in vs plug in ／ stop there | start there ／ think out ／ excellent ／  wide ／ disposable income ／ I am willing to buy ／ move into ／ the real interest rate ／ standard of living
+--
+*   lower case letter ／ How can we get more? holding others constant ／ mess up  ／ monumental丰碑式的 ／ go nuts ／ **dwell on**细想
+Truman ／ **rescind**解除 ／ advanced class ／ **decisive battle** ／ then and now ／ **wrestle**搏斗 a living
+--
+*Feb 3*
+* enforcement ／ attempt ／ fight for
+
+--
+### Guardian | Trump is making China great again
+* **dismay**灰心 to discover ／ wooed customer争取 / a **huge** win | **elegant** Enghlish country house / the liberalising自由化 trend of the previous three decades /  discomfiting 挫败western allies / **squeezing** internal markets **dissent** and loyalty to the regime / the spectacular success of China's ecnomic opening and partial political relaxtion would lead to a more open society and more **political inclusion** / **steer**== let / **political pluralism**多元主义 and tolerance / **shore up** the party / in **defiance** 反抗of what an **inevitable trend**: that an emerging middle class would always force a political opening / trade **initiative** /  tear up its own rules / **reap**收获 == get the benefit and **contain** the inevitable damage
+>Thucydides traps | Hermann Hesse | Pandora's box | Damocles sword | a crafted speech | fulsome homage 
+* **cramming**>>many of references / polite scepticism | an almost uncritical welcome / **audacious** 无畏的 | **contention**争论 ／ it **pales in微不足道 (useless)comparison to** ／ a world escalating tensions and disruption ／ the burden of **censure**责备(blame critisize) ／ objectionable令人不快的 ／ western countries **scrambled 争先to** access the Chinese market / **beacon** 灯塔 dumb / **staunch**忠实可靠的 / impoverished / one belt on road policy | it seeks to build up infrasture in elsewhere / factory of the world
+--
+* **patriotic spirit**爱国主义精神
+* **is oscillating widely**剧烈波动
+* equip elite with foreign knowledge and skills
+
+
+
+
+
+
+
+
 
 
 
