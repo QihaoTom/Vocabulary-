@@ -203,13 +203,30 @@ Truman ／ **rescind**解除 ／ advanced class ／ **decisive battle** ／ then
 ### Guardian | Trump is making China great again
 * **dismay**灰心 to discover ／ wooed customer争取 / a **huge** win | **elegant** Enghlish country house / the liberalising自由化 trend of the previous three decades /  discomfiting 挫败western allies / **squeezing** internal markets **dissent** and loyalty to the regime / the spectacular success of China's ecnomic opening and partial political relaxtion would lead to a more open society and more **political inclusion** / **steer**== let / **political pluralism**多元主义 and tolerance / **shore up** the party / in **defiance** 反抗of what an **inevitable trend**: that an emerging middle class would always force a political opening / trade **initiative** /  tear up its own rules / **reap**收获 == get the benefit and **contain** the inevitable damage
 >Thucydides traps | Hermann Hesse | Pandora's box | Damocles sword | a crafted speech | fulsome homage 
-* **cramming**>>many of references / polite scepticism | an almost uncritical welcome / **audacious** 无畏的 | **contention**争论 ／ it **pales in微不足道 (useless)comparison to** ／ a world escalating tensions and disruption ／ the burden of **censure**责备(blame critisize) ／ objectionable令人不快的 ／ western countries **scrambled 争先to** access the Chinese market / **beacon** 灯塔 dumb / **staunch**忠实可靠的 / impoverished / one belt on road policy | it seeks to build up infrasture in elsewhere / factory of the world
+* **cramming**>>many of references / polite scepticism | an almost uncritical welcome / **audacious** 无畏的 | **contention**争论 ／ it **pales in微不足道 (useless)comparison to** ／ a world escalating tensions and disruption ／ the burden of **censure**责备(blame critisize) ／ objectionable令人不快的 ／ western countries **scrambled 争先to** access the Chinese market / **beacon** 灯塔 dumb / **staunch**忠实可靠的 / impoverished / one belt on road policy | it seeks to build up infrasture in elsewhere / factory of the world ／ **patriotic spirit**爱国主义精神 ／ **is oscillating widely**剧烈波动 ／ equip elite with foreign knowledge and skills
 
---
+## Vacabulary: 1st week
+* micro vs macro ／ courseware 课件 a big conversation / soft science / stories can be set / hard data/evidence / proper notes / instructor / anything important / reminder / unviersity career / seek help / shout down in backpack / midterm ／ get rid of ／ comprehensive ／ lower expectation / randomize / undermine / critical thinking / communciation skills / bring evidence ／ * **back up 证实data** ／ tricky to understand / bars vs churches / correlation vs causilty
+* policy-making ／ linkage ／ it's fair ／ domestic policy ／ developed countries ／ open for debate ／ think outside the box ／ side ／ Lucas critique ／ attendency ／ extension ／ hard deadline ／ things happen all the time ／ productive ／ in the civil way/political ideas/ **factual knowledge** 事实 / facts vs belief / individual rights
+  * *KEEPING THE REPUBLIC*
+  
+**Jan 19th**
+* to get copies online ／ stright forward ／ there are going to ／ practise ／ what else ／ blackboard ／ all right ／ bartender
+*  rope绳索 ／ **slacking** ／ bearcat ／ instramural sports ／ shack ／ mediation中介 ／ bouldering攀岩运动 ／ spelunk洞穴探险barefoot outfitter ／ REC == recreation ／ coliseum ／ **superintend**监督 ／ cable ／ **spacious**宽敞的 ／ **emblem符号** ／ hail冰雹 ／ freak out ／ inmate囚犯 ／ incremental 增加的 ／ binding捆绑 ／ appealing ／ deny ／ **brawl**争吵 ／ familiarise使熟悉 ／ modules ／ environment dictate命令 ／ amplify扩大 ／ masquerading伪装骗人 ／ **hype**炒作 ／ **platitude**陈词滥调 /  **eschew**避开 politics / salute致敬 / punch / real estate / curb抑制 / **loom for关注** ／ bold ／ kinesiology / buzz ／ fair ／ genuine ／  handout文字资料 ／ **tentative**试验性的 ／ **procrastination**拖延症 ／purse ／ foyer休息室；大厅 ／ oversize ／ depository / elective ／ auction拍卖 / bond ／  easy money ／ intensity强度 ／ chase ／ crooked ／ procedure ／ slap ／ fiancee ／ lettuce ／ turf 草皮 ／**premise**前提 ／ blue print ／ **prosecute** ／ **aesthetic** ／ cough ／ stock ／ vaccination接种疫苗 ／ physicals ／ referral ／ dental ／ comprise ／ capacity ／ homesick ／ **concurrent** 并发的 ／  immgiration ／  stuck ／ copay ／ ticket ／ Ghana ／ shorts ／ social insurance ／  Bahamas ／ sucks ／ slay ／ halt停止 ／ compute ／ earpiece ／ barely ／ **conciliation**调解 ／ intense ／ nightmarish恶梦似的 ／ viral病毒性的 ／ erupted ／ heavy duty ／ delicate ／ lint棉绒 / hatred / bitterness / thirst / **poised**准备行动的 / nasty / rotate / denounce 谴责 / insomnia / buck / tap / vatican梵蒂冈 / lukewarm冷淡的 / tip / deplorably>>poor悲惨地 / taco / allegiance忠诚 / remnant / pushback  驳回 /  resolved / issue / janitor / evacuate撤退 / visitation探视 / **respiratory**呼吸的 / vomiting /  **illicit违法的** / extremities / fingernail手指甲 / **clammy**湿冷的
+*  chills / overdose / geyser喷泉 / router / reptilian 爬虫类的/  information technology /  sucralose 蔗糖素/  decaf / bigotry / peek / ranch / felony / ripe 成熟的/ callous无情的 / prescribe / pancake /  fodder / spoiler / inauguratory / in sooth 真实/ exfoliator去角质 / **blemish**瑕疵 / lotion / rodeo竞技 / cashew / soy milk / tissue / shampoo / duplicate / **scythe用大镰刀割** /  mustard /  insulation绝缘 / bowers 树荫处/ patron赞助人 / axe / flagpole 旗竿/ events / trespass / penal 刑事的/ **pursuant**依照 / collegiate / reliant / cable / offender /  execution /  intermittently 间歇地/  missonary / exon / sanctuary避难所 /  chapel / donor / pastor / wreckers / liable /  towing拖车 / premiere /  booze酒 / gaze凝视 / legacy / allegation / probe / **dossier**档案 / **repeal**废除 /  oversight / AMtrak / putt 轻轻一击/  dateline日界线 / briefing / unsubstantiated /  senior / transition / ethic / combo /  roll /  fountain /  baltimore /  features /  caregivers /  complex / roast / extension /  People **would** stop to pet him, and I **would** meet them. / syndrome综合症状 /  What are you **working on** / It's acutally easier if you've only ever been mediocre./ WTF / **Have we met before?** /  You've never heard of F.scott Fitzgerald? / Why? Is he **famous and important**? /  Naming your dog after him? It's **a little** disrespectful. / an aggressive gesture / I like him just the way he is. / It **overhelms** me. I literally cannot sleep or eat.
 
-* **patriotic spirit**爱国主义精神
-* **is oscillating widely**剧烈波动
-* equip elite with foreign knowledge and skills
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
